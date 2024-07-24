@@ -1,4 +1,4 @@
-## Hi there 👋
+## jk don't get to know me, bye 👋
 
 <!--
 **gelid-ganef/gelid-ganef** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
